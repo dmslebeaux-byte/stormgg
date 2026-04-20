@@ -1,0 +1,2 @@
+# stormgg
+my scriptss emden
